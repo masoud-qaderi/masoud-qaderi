@@ -49,4 +49,3 @@ _Other Tools_:
 
 [![](https://visitcount.itsvg.in/api?id=TazhibTechnology&icon=0&color=0)](https://visitcount.itsvg.in)
 
-> _Generated with ❤️ by [GPRM](https://gprm.itsvg.in)_
